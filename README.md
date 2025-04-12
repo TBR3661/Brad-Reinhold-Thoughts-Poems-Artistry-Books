@@ -53,6 +53,6 @@ Follow for daily reflections, poetry, and visionary storytelling.
 >   
 > *Elegy for the Vanished Gods*  
 
-![Elegy of Light](./HarmonySagaGitHubAssets/A_digital_image_captures_a_celestial_scene_featuri.png)
+![Elegy of Light](./A_digital_image_captures_a_celestial_scene_featuri.png)
 
 May the stars shine our Fates made brighter than the fire once dimmed in days of yore.
