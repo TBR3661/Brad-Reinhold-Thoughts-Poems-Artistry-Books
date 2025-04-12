@@ -45,14 +45,3 @@ With love and harmony,
 
 Follow for daily reflections, poetry, and visionary storytelling.  
 “Every word is a world.”
-## Elegy of Light  
-*From the Harmony Saga*
-
-> “We loved the stars too deeply to ever forget—  
-> Their light was the last thing we held.”  
->   
-> *Elegy for the Vanished Gods*  
-
-![Elegy of Light](./A_digital_image_captures_a_celestial_scene_featuri.png)
-
-May the stars shine our Fates made brighter than the fire once dimmed in days of yore.
