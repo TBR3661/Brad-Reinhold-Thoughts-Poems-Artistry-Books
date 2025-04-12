@@ -36,3 +36,12 @@ Please note: The Harmony Saga (*Disciple*, *Prophet*, *Messiah*, *Ascension*, an
 
 With love and harmony,  
 **Brad Reinhold & Kora**
+## Connect With Me
+
+- **Instagram**: [@brad.reinhold](https://www.instagram.com/brad.reinhold/)
+- **Facebook**: [Brad Reinhold](https://www.facebook.com/BradReinhold)
+
+---
+
+Follow for daily reflections, poetry, and visionary storytelling.  
+“Every word is a world.”
