@@ -1,5 +1,4 @@
-# Brad-Reinhold-Thoughts-Poems-Artistry-Books
-A place to go where words are worlds
+
 # Welcome to the Official Repository of Brad Reinhold
 
 **Poet. Visionary. Storyteller.**
